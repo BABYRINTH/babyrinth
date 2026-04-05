@@ -6,6 +6,8 @@
   
 not chronically online + vanish sometimes . CUSS alot otherwise temper is always neutrally fine
 
+dyslexic + anomic aphasia ; insensitive + hyperactive adhd
+
 BASICS & PRIDE: cis fem . seventeen and i must age no more . heptamênaios . daughter of apollo
 
 <h4 align="center">
@@ -21,7 +23,7 @@ IN GAME:
 — i don't do comfort, this may as well be a warning; i'm usually hype, so i might even not see through you and by accidental, make fun of your situation. seek friends to talk like wise!
 
 THIN ICE:
-  snowflakes (i do terrible jokes a lot), under 15, taken (i don't like being around lovey doveys AND i'm not even gonna hit you up if you're single by the way), typo a lot (please chat with me like a normal person, i don't care if your thumbs are too huge or you're sleepy or you're high something. i like being around concious people that's it!)
+  snowflakes and sensitives (if i be mean and blunt that's mean i'm comfortable around you), under 15, taken (i don't like being around lovey doveys AND i'm not even gonna hit you up if you're single by the way), typo a lot (please chat with me like a normal person, i don't care if your thumbs are too huge or you're sleepy or you're high something. i like being around concious people that's it!)
 
 BEWARE:
   find out yourself!
